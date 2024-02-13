@@ -6,7 +6,7 @@ I'm Hanhui 汉晖, a postgraduate student in Guangdong University of Finance and
 
 I am a researcher mainly focuses on digital economy,regional economy and green innovation.
 
-I love running 🏃‍♀️, traveling ✈️,and reading📘.  
+I love running 🏃‍♀️,playing pingpong🏓， traveling ✈️,and reading📘.  
 
 Let's passionate!
 ## Get in touch
